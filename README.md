@@ -1,2 +1,2 @@
 # MyRp
-I'm a teasher
+I'm a analyst
