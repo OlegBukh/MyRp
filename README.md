@@ -1,2 +1,2 @@
 # MyRp
-I'm a analyst
+I'm an analyst
